@@ -1,2 +1,2 @@
-# cardhubs.github.io
-card hub office site
+# 数字卡包隐私条款
+数字卡包隐私条款
